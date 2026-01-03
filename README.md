@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LAVC070309HMCNZHA3
+LAVC070309HMCNZHA3
